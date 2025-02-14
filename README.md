@@ -1,3 +1,4 @@
+
 # Seek Love
 ## The exhibition Seek Love invites viewers to revisit the connection between design and love. Rachel Lapidot and Sagui Mamane, industrial designers and life partners, present objects that go far beyond functional furniture – they are insinuations to the quest for meaning and feeling, embedded in the material. Their works investigate how love manifests in the interplay between functionality and conceptuality, between fluid forms and clean lines, and between individuals and the spaces they inhabit.
 Can objects evoke emotions, bridge between the material and emotional realms, or even teach us how to love? The pieces on display encourage contemplation the role of objects in our environment and explore how material transforms into an active interlocutor – not merely as a medium but as an emotional language embodied in design/objects.
